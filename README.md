@@ -1,1 +1,6 @@
-# Business-insights-360
+![1](https://user-images.githubusercontent.com/86218028/207795085-d74afb44-f516-4e85-a8ce-88373af95575.JPG)
+![2](https://user-images.githubusercontent.com/86218028/207795128-ad1c91d3-10ac-4d51-864b-2872aa089784.JPG)
+![3](https://user-images.githubusercontent.com/86218028/207795145-75e81e73-55ea-4ff0-8d50-56821ced4b0e.JPG)
+![4](https://user-images.githubusercontent.com/86218028/207795152-32166f5b-a66c-4a5d-8ad6-97caf4c8e024.JPG)
+![5](https://user-images.githubusercontent.com/86218028/207795157-d5ff4607-3af4-48c5-a9e9-9525f08eab41.JPG)
+![6](https://user-images.githubusercontent.com/86218028/207795166-8654afcf-2429-4bba-a56b-8739e9839fbd.JPG)
